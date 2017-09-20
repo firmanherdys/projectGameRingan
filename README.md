@@ -1,0 +1,2 @@
+# projectGameRingan
+ya gitu deh 
